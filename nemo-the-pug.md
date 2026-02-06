@@ -10,7 +10,7 @@ But chaos is his middle name, and trouble’s at the door.
 Nemo, oh Nemo, with your wild little ways,
 Nemo, oh Nemo, lighting up all our days,
 You lick the air like it’s dripping with bacon grease,
-Our tiny black tornado, never granting peace!
+Our tiny black tornado, perfect comic relief!
 
 [Verse 2]
 That tongue’s on perpetual patrol, flicking left and right,
