@@ -1,11 +1,11 @@
-# Maia the Pug
+Blessed by Maia
 
 [Verse 1]
 She's a beautiful pug, the finest they've seen,
 Vets stop and stare—she's a show-stopping queen,
 Gentle soul with a sensitive heart,
-But beware the gangster, she'll tear things apart!
-A wild child spirit in a perfect frame,
+But beware the gangsta, she'll tear things apart!
+A free-willed spirit in a perfect frame,
 Maia's here now, and she's changing the game.
 
 [Chorus]
@@ -22,7 +22,7 @@ Licking everything daily, she's our janitor,
 Marking every tree and pole like the boys do,
 Scratches are her currency, she'll never have enough too,
 Keeps the floors sparkling clean with that tongue on patrol,
-Sweet little gangster with a loveable soul!
+Sweet little gangsta with a loveable soul!
 
 [Chorus]
 Maia, oh Maia, with your quiet command,
@@ -44,7 +44,7 @@ Taking over each place like it's one of her homes!
 We're so blessed to have her, this pug of our dreams,
 Life and laughter returned—bursting at the seams,
 She's gentle, she's wild, she's everything right,
-A sensitive gangster who sleeps through the night,
+A sensitive puggy, a real wild-child!
 Maia the magnificent, loveable and true,
 The best specimen of pugs—and our whole world too!
 
