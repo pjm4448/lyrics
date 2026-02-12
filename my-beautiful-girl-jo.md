@@ -1,8 +1,5 @@
 # My Beautiful Girl
-
 ## In Celebration of Jo
-
-*(Upbeat pop rock with emotional depth - acoustic guitar and piano opening)*
 
 [Verse 1]
 I can still see her, singing to a happy tune
@@ -19,7 +16,6 @@ She was sunshine breaking through the clouds
 A bright light shining, standing proud
 Breath of fresh air in every single way
 My beautiful girl, lighting up the grey
-*(Oh, my beautiful girl)*
 Though the absence of you is everywhere
 Your light still shines, I feel you there
 Your light still shines, I feel you there
@@ -46,7 +42,6 @@ She was sunshine breaking through the clouds
 A bright light shining, standing proud
 Breath of fresh air in every single way
 My beautiful girl, lighting up the grey
-*(My beautiful, brave, funny girl)*
 Though the absence of you is everywhere
 Your light still shines, I feel you there
 Your light still shines, I feel you there
@@ -65,13 +60,10 @@ A love beyond all telling, that's me and you
 
 [Final Chorus - Key Change Up]
 You were sunshine breaking through the clouds
-*(My bright light, my beautiful girl)*
 A bright light shining, standing proud
-*(So bright, so beautiful)*
 Breath of fresh air in every single way
 My beautiful girl, lighting up the grey
 My remarkable daughter, my Jo, my Jo
-*(My beautiful, brave, remarkable Jo)*
 Though the absence of you is everywhere
 Your light still shines, I feel you there
 Your light still shines, I feel you there
@@ -86,9 +78,9 @@ Your light lives on, lives on
 *(Sustained final note)*
 My beautiful girl...
 
-*(2 seconds silence at the very end of the song)*
-
 ---
 
 *For Jo - who was made up of all the qualities that make a fine and remarkable human being.*
 *Forever loved, forever missed, forever our bright light.*
+
+*(2 second silence at the end)*
