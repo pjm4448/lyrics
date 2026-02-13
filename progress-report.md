@@ -18,14 +18,13 @@
 *[Quiet, vulnerable. Low register vocals. Bass enters minimally]*
 
 They chose me for my bloodline and my faith  
-Tested my conviction, found me pure  
 Now green light bleeds at the edges of my vision  
-And I wake with copper taste and nosebleeds on my pillow  
+I wake with copper taste and nosebleeds on my pillow  
 
 *[Pre-Chorus: Guitar enters, dissonant voicings. Voice straining higher]*
 
-We're all dreaming the same dream now  
-Five voices speaking words we never learned  
+We're all dreaming the same dream  
+Speaking words we never learned  
 Dr. Metzger writes it down and smiles  
 
 ---
@@ -35,7 +34,7 @@ Dr. Metzger writes it down and smiles
 
 This is breakthrough, this is what you wanted  
 My spine arcs backward, tongue speaks in frequencies  
-Ph'nglui mglw'nafhthe syllables are bleeding through  
+Ph'nglui mglw'nafhthe syllables bleeding through  
 You call this progress while my mind dissolves  
 I'm not awakening, I'm breaking  
 Strapped down, screaming geometry  
@@ -47,8 +46,7 @@ Strapped down, screaming geometry
 
 Tools fly off their racks when I'm too close  
 Light bulbs shatter in my wake  
-They say it's the Vril energy responding  
-But my hands are shaking and I see things moving in the steel  
+My hands are shaking, things moving in the steel  
 
 *[Pre-Chorus: More urgent, voice cracking with strain]*
 
@@ -66,7 +64,6 @@ My body moves in ways I'm not commanding
 Wgah'nagl fhtagnI'm speaking but it's not my voice  
 You call this progress, chart our disintegration  
 We're not transcending, we're becoming doors  
-For something that was never meant to wake  
 
 ---
 
@@ -76,10 +73,8 @@ For something that was never meant to wake
 *(spoken/raved, rhythmic over sparse instrumentation)*  
 Candidate Three  
 Clawing at his face  
-Insects beneath the skin he says  
 
 Candidate One  
-Attacked the crewman  
 Screaming about tentacles of green light  
 
 *(Building with distorted guitar)*  
@@ -89,13 +84,11 @@ While Metzger takes his notes
 
 *(Erupting to full band)*  
 We were chosen!  
-We were pure!  
 We were supposed to be the Übermensch! 
 
 *(Guitar solo: dissonant, wailing, Kim Thayil-style Eastern modal bends)*
 
 But we're just apertures  
-Meat and neural pathways  
 Opened for forces  
 That don't care about the Reich  
 
@@ -109,12 +102,25 @@ Three candidates reduced to raving specimens
 Ph'nglui mglw'nafh Cthulhu R'lyeh wgah'nagl fhtagn  
 Write that down, Doctor, in your progress report  
 We're not the future, we're the warning  
-And It's already inside 
 
 ---
 
 ### OUTRO
 *[Collapsing. Guitars fade to single clean note. Voice breaking, exhausted]*
+
+*(whispered, defeated)*  
+Green light  
+Tentacles  
+Mathematics I can see but shouldn't  
+
+*(Dr. Metzger's voice, clinical, distant)*  
+*"Excellent progress, gentlemen.*  
+*Vril sensitivity confirmed.*  
+*Proceeding to final phase."*  
+
+*(Final whispered line as guitar note distorts)*  
+We were never the vessels...  
+We were the door...  
 
 *[Feedback. Silence.]*
 
