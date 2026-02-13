@@ -156,7 +156,7 @@ But the nightmare's real
 - **Drums:** Matt Cameron/Dave Abbruzzese stylesolid groovy foundation, fills that serve the song, powerful but not flashy
 - **Bridge:** Strip to bass/vocals for vulnerability, then build through drums to explosive McCready-style solo expressing Vogel's internal breaking point
 - **Production:** Raw, organic grunge aesthetic. Room sound, minimal effects. Bass and drums locked tight. Guitar solos melodic and emotional
-- **Outro:** Let instruments fade to reveal mechanical soundsengines, sonarthat slowly distort into unnatural frequencies
+- **Outro:** Let instruments fade to reveal mechanical sounds that slowly distort into unnatural frequencies
 
 ## PERFORMANCE NOTES:
 
