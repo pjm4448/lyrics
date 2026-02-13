@@ -39,11 +39,11 @@ I see what waits beneath the tides
 ### CHORUS 1
 *[Full doom. Multiple vocal layers, intentionally dissonant harmonies]*
 
-**Sleeping titans in the depths below**  
-**Colossal forces bound by elder geometries**  
-**A gateway waits where currents flow**  
-**And I am the voice that sanctifies what should not be**  
-**My words become their prophecy**  
+Sleeping titans in the depths below
+Colossal forces bound by elder geometries
+A gateway waits where currents flow
+And I am the voice that sanctifies what should not be 
+My words become their prophecy 
 
 ---
 
@@ -72,11 +72,11 @@ Older than the soil, vaster than his dreams
 ### CHORUS 2
 *[Crushing doom. Background chants]*
 
-**Sleeping titans in the ocean black**  
-**Bound by impossible angles, non-Euclidean chains**  
-**The gateway calls our vessels back**  
-**And I speak the words that authorize their dark campaigns**  
-**My blessing damns, my vision stains**  
+Sleeping titans in the ocean black
+Bound by impossible angles, non-Euclidean chains
+The gateway calls our vessels back
+And I speak the words that authorize their dark campaigns  
+My blessing damns, my vision stains
 
 ---
 
@@ -90,7 +90,7 @@ The bureaucracy of apocalypse
 
 Himmler's voice cuts clean and cold:  
 *"Excellent, Kessler. Activate immediately.*  
-*Type XXI U-boat, highest priority.*  
+*Type 21 U-boat, highest priority.*  
 *Failure is not an option."*  
 
 The machinery grinds into motion  
@@ -103,17 +103,11 @@ As cosmic horror meets the Third Reich's debt
 ### FINAL CHORUS
 *[All instruments. Full gothic grandeur]*
 
-**Sleeping titans will not sleep for long**  
-**We sail toward geometry that breaks the mind**  
-**The gateway opens to their song**  
-**And I have blessed this journey, sanctified the crime**  
-**My oracle seals us all in time**  
-
-*(overlapping chants, doom-laden)*  
-*(Bound by geometries)*  
-*(Colossal forces wake)*  
-*(The gateway opens wide)*  
-*(For the Fatherland's sake)*  
+Sleeping titans will not sleep for long 
+We sail toward geometry that breaks the mind  
+The gateway opens to their song
+And I have blessed this journey, sanctified the crime
+My oracle seals us all in time 
 
 ---
 
