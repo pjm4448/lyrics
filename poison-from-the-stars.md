@@ -2,20 +2,20 @@
 ## (Inspired by Project Übersinnlich - Chapter 2)
 
 **Style:** Doom Metal / Sludge Rock  
-**Tempo:** ♩ = 62 (oppressively slow)  
-**Key:** Drop C# tuning  
-**Influences:** Alice in Chains, Type O Negative, early Soundgarden  
+**Tempo:** ♩ = 62  
+**Key:** Drop C#  
+**Influences:** Alice in Chains, Type O Negative  
 **Scale:** C# harmonic minor  
 
 ---
 
 ### INTRO
-*[0:00-0:35: Descending bass riff, feedback drone, tribal tom rhythm]*
+*[Descending bass riff, feedback drone, tribal drums]*
 
 ---
 
 ### VERSE 1
-*[0:35-1:15: Heavy sludgy guitar. Vocals anguished, Layne Staley-style, double-tracked]*
+*[Heavy sludgy guitar. Vocals anguished, double-tracked]*
 
 They drag me through the threshold cold  
 Into geometry that breaks the mind  
@@ -27,7 +27,7 @@ Pristine as though it sealed today
 The ceiling rises into death  
 The angles bend the wrong damn way  
 
-*[Pre-Chorus: Dissonant harmonies, drums intensify]*
+*[Pre-Chorus: Dissonant harmonies]*
 
 Upon the plinth, the trinity waits  
 Black tablets carved by no human hand  
@@ -37,90 +37,75 @@ Star charts showing where they planned
 ---
 
 ### CHORUS 1
-*[1:15-1:50: Crushing doom. Desperate vocals. Background whisper "Wā wayl"]*
+*[Crushing doom. Desperate vocals]*
 
 **This place is a lock!**  
 **Don't you dare turn the key!**  
 **The sleepers beneath the rock**  
 **Were caged for eternity**  
 **Poison from the stars**  
-**Poison from the stars**  
 **You cannot claim what isn't yours**  
-**Poison from the stars**  
 
 ---
 
 ### VERSE 2
-*[1:50-2:30: Heavier. Bass walking harmonic minor. Vocals urgent, breaking]*
+*[Heavier. Vocals urgent, breaking]*
 
 Obsidian carved impossibly deep  
-Dimensions coiling past the surface flat  
 The glyphs describe what cannot sleep  
 Djinn older than the world grew fat  
 
-*(spoken, trembling)*  
-*"These cannot be translated by men—  
-They speak of things before man lived!"*  
+*(spoken)* *"These cannot be translated by men!"*  
 
-But the one in black, cobalt eyes like ice  
+But the one in black, eyes like ice  
 Demands I read the elder tongue  
 I tell him truth—the scholar's price—  
 That some doors must stay unsung  
 
-*[Pre-Chorus: Mournful bends, feedback building]*
+*[Pre-Chorus]*
 
-The metal cylinders hum wrong  
+The cylinders hum wrong  
 No element from this world's core  
-The star charts show where they came from  
 Green stars we've never mapped before  
 
 ---
 
 ### CHORUS 2
-*[2:30-3:05: More layers, more desperate. Wall of anguish]*
+*[More desperate. Wall of anguish]*
 
 **This place is a lock!**  
 **These symbols are the key!**  
 **The sleepers beneath the rock**  
 **Will drown eternity**  
 **Poison from the stars**  
-**Poison from the stars**  
 **The cage will shatter, open doors**  
-**Poison from the stars**  
 
 ---
 
 ### BRIDGE - THE MARTYRDOM
-*[3:05-4:00: Building to murder. Vocals raw. Music swells then STOPS]*
+*[Building to murder. Vocals raw. Music swells then STOPS]*
 
 I see my death in his frozen face  
-This Nazi who would play at god  
-He calls my knowledge a disgrace  
-My ancient learning just a fraud  
+The one in black who would play at god  
 
-*(Building intensity, almost screaming)*  
+*(Building intensity)*  
 For Allah's sake! For all that breathes!  
 **LEAVE THEM BE!**  
-**LET THE ABYSS KEEP ITS SECRETS!**  
 This is not a tomb—  
 **IT IS A CAGE!**  
 
-*[GUNSHOT - sharp snare hit with cymbal swell]*  
-
-*[3:35-3:50: COMPLETE SILENCE for 3 seconds]*  
-
-*[3:50-4:00: Mournful guitar solo, clean tone, Middle Eastern maqam influence]*
+*[GUNSHOT]*  
+*[SILENCE for 3 seconds]*  
+*[Mournful guitar solo]*
 
 ---
 
-### INTERLUDE - BLOOD ON STONE
-*[4:00-4:20: Whispered. Acoustic fingerpicking. Single-tracked, ghost-like]*
+### INTERLUDE
+*[Whispered. Acoustic. Ghost-like]*
 
 *(whispered)*  
 My blood feeds the hungry floor  
 The stone drinks deep, remembers taste  
-I am not the first who bore  
-This witness to their righteous waste  
 
 Cold air that tastes of ozone  
 And endings written long ago  
@@ -129,51 +114,39 @@ But dead men's warnings never show
 
 ---
 
-### FINAL CHORUS - THE GHOST SPEAKS
-*[4:20-5:00: Electric returns, restrained. Multi-tracked vocals (him + others). Ethereal]*
+### FINAL CHORUS
+*[Electric returns. Multi-tracked. Ethereal]*
 
 **This place WAS a lock**  
 **You have turned the key**  
 **The sleepers beneath the rock**  
 **Rise from their entropy**  
 **Poison from the stars**  
-**Poison from the stars**  
 **I told you what was behind those doors**  
-**Poison from the stars**  
-
-*(overlapping ad-libs, multiple ghost voices)*  
-*(We all tried to warn you)*  
-*(The scholars always die)*  
-*(The arrogant never listen)*  
-*(Until the stars align)*  
 
 ---
 
-### OUTRO - THE ACKNOWLEDGMENT
-*[5:00-5:30: Minimal soundscape. Wind. Then: slow PULSE begins - subsonic throb. Artifacts responding]*
+### OUTRO
+*[Wind. Slow PULSE. Artifacts responding]*
 
-*(whispered, barely audible)*  
+*(whispered)*  
 They heard me  
-The tablets pulse with recognition  
+The tablets pulse  
 Not for him  
-Never for him  
 
 They heard ME  
-My blood was the offering they needed  
+My blood was the offering  
 The scholar's blood  
-Not the conqueror's  
-
-*(pulse continues, slowing)*  
 
 The cargo travels north to Berlin  
-And I... I travel with it  
+And I travel with it  
 Unmarked, unmourned  
 But NOT unheard  
 
-*(final whisper as pulse fades to unresolved dissonant chord)*  
-The cage... is open now...
+*(final whisper)*  
+The cage is open now
 
-*[Sustained dissonance never resolves, fading to near-silence]*
+*[Sustained dissonance fades]*
 
 ---
 
