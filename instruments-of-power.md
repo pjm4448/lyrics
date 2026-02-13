@@ -29,8 +29,8 @@ And I'm the one they've chosen to command
 
 *[Pre-Chorus: Guitars build, vocals strain]*
 
-I carry Greta's photograph against my heart  
-Elsa's smile frozen in Hamburg's summer sun  
+I carry my wife's photograph against my heart  
+Daughter's smile frozen in Hamburg's summer sun  
 I promised them I'd come back when this madness ends  
 But where is the line between duty and what I've become?  
 
@@ -39,14 +39,14 @@ But where is the line between duty and what I've become?
 ### CHORUS 1
 *[Full band explosion. Power chords, layered vocals, desperate]*
 
-**I am the helmsman of a vessel I don't trust**  
-**Pilot of a predator corrupted into something else**  
-**Thirty-seven patrols taught me survival in my bones**  
-**But this boat speaks in frequencies that sound like hell**  
-**I know it's wrong, I know I should refuse**  
-**But Himmler's orders are the cage I cannot break**  
-**I am the helmsman**  
-**And I'll steer us toward the deep**  
+I am the helmsman of a vessel I don't trust 
+Pilot of a predator corrupted into something else  
+Thirty-seven patrols taught me survival in my bones  
+But this boat speaks in frequencies that sound like hell
+I know it's wrong, I know I should refuse 
+But the orders are the cage I cannot break
+I am the helmsman  
+And I'll steer us toward the deep 
 
 ---
 
@@ -75,14 +75,14 @@ But there's a firing squad for men who show they're weak
 ### CHORUS 2
 *[Louder, more layers. Background vocals echo key phrases]*
 
-**I am the helmsman of a vessel I don't trust**  
-**Pilot of a predator corrupted into something else**  
-**Thirty-seven patrols taught me survival in my bones**  
-**But this boat speaks in frequencies that sound like hell**  
-**I know it's wrong, I know I should refuse**  
-**But Himmler's orders are the cage I cannot break**  
-**I am the helmsman**  
-**And I'll steer us all to fate**  
+I am the helmsman of a vessel I don't trust  
+Pilot of a predator corrupted into something else 
+Thirty-seven patrols taught me survival in my bones 
+But this boat speaks in frequencies that sound like hell 
+I know it's wrong, I know I should refuse 
+But the orders are the cage I cannot break 
+I am the helmsman
+And I'll steer us all to fate
 
 ---
 
@@ -112,15 +112,15 @@ No human astronomer could know
 ### FINAL CHORUS
 *[Everything. All instruments. Vocals transcendent with resignation]*
 
-**I am the helmsman and I'm steering into darkness**  
-**Pilot of a predator that shouldn't exist**  
-**Thirty-seven patrols mean nothing to the abyss**  
-**This boat breathes wrongness, and I give it life with this**  
-**I knew it's wrong, I knew I should refuse**  
-**But history chose me to be the one who breaks**  
-**I am the helmsman**  
-**I am the hand on the wheel**  
-**I am the one who seals our fate**  
+I am the helmsman and I'm steering into darkness  
+Pilot of a predator that shouldn't exist 
+Thirty-seven patrols mean nothing to the abyss 
+This boat breathes wrongness, and I give it life with this  
+I knew it's wrong, I knew I should refuse  
+But history chose me to be the one who breaks  
+I am the helmsman  
+I am the hand on the wheel  
+I am the one who seals our fate  
 
 ---
 
