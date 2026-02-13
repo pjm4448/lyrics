@@ -34,7 +34,7 @@ Dr. Metzger writes it down and smiles
 
 This is breakthrough, this is what you wanted  
 My spine arcs backward, tongue speaks in frequencies  
-Ph'nglui mglw'nafhthe syllables bleeding through  
+Ph'nglui mglw'nafh the syllables bleeding through  
 You call this progress while my mind dissolves  
 I'm not awakening, I'm breaking  
 Strapped down, screaming geometry  
@@ -61,7 +61,7 @@ Metzger calls it bio-energetic flux
 
 This is breakthrough, this is Hitler's vision  
 My body moves in ways I'm not commanding  
-Wgah'nagl fhtagnI'm speaking but it's not my voice  
+Wgah'nagl fhtagn I'm speaking but it's not my voice  
 You call this progress, chart our disintegration  
 We're not transcending, we're becoming doors  
 
