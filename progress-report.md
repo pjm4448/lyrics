@@ -108,20 +108,6 @@ We're not the future, we're the warning
 ### OUTRO
 *[Collapsing. Guitars fade to single clean note. Voice breaking, exhausted]*
 
-*(whispered, defeated)*  
-Green light  
-Tentacles  
-Mathematics I can see but shouldn't  
-
-*(Dr. Metzger's voice, clinical, distant)*  
-*"Excellent progress, gentlemen.*  
-*Vril sensitivity confirmed.*  
-*Proceeding to final phase."*  
-
-*(Final whispered line as guitar note distorts)*  
-We were never the vessels...  
-We were the door...  
-
 *[Feedback. Silence.]*
 
 ---
