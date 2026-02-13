@@ -72,43 +72,6 @@ But there's a firing squad for men who show they're weak
 
 ---
 
-### CHORUS 2
-*[Louder, more layers. Background vocals echo key phrases]*
-
-I am the helmsman of a vessel I don't trust  
-Pilot of a predator corrupted into something else 
-Thirty-seven patrols taught me survival in my bones 
-But this boat speaks in frequencies that sound like hell 
-I know it's wrong, I know I should refuse 
-But the orders are the cage I cannot break 
-I am the helmsman
-And I'll steer us all to fate
-
----
-
-### BRIDGE - THE BREAKING POINT
-*[Stripped down. Acoustic guitar, vocals raw and vulnerable]*
-
-*(spoken/sung, intimate)*  
-Franz asks me in the corridor  
-Away from ears that serve the Reich  
-"A captain's duty isn't orders—  
-It's bringing his crew home alive"  
-
-*(Building intensity)*  
-And I want to believe him  
-God knows I want to walk away  
-But what home is there to return to?  
-What world survives another day?  
-
-*(Full band crashes back)*  
-So I'll follow these coordinates  
-To depths no man should go  
-I'll navigate by star maps showing systems  
-No human astronomer could know  
-
----
-
 ### FINAL CHORUS
 *[Everything. All instruments. Vocals transcendent with resignation]*
 
@@ -131,7 +94,7 @@ I am the one who seals our fate
 The sea gates open slow  
 Dark water of the fjord  
 I touch the photograph one final time  
-Greta, Elsa—forgive me  
+Greta, Elsa. Forgive me.  
 
 *(Final engine sound. Submersion. Silence.)*
 
