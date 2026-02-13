@@ -33,12 +33,12 @@ Dr. Metzger writes it down and smiles
 ### CHORUS 1
 *[Explosive. Full band crushing. High anguished Cornell-style wail]*
 
-**This is breakthrough, this is what you wanted**  
-**My spine arcs backward, tongue speaks in frequencies**  
-**Ph'nglui mglw'nafhthe syllables are bleeding through**  
-**You call this progress while my mind dissolves**  
-**I'm not awakening, I'm breaking**  
-**Strapped down, screaming geometry**  
+This is breakthrough, this is what you wanted  
+My spine arcs backward, tongue speaks in frequencies  
+Ph'nglui mglw'nafhthe syllables are bleeding through  
+You call this progress while my mind dissolves  
+I'm not awakening, I'm breaking  
+Strapped down, screaming geometry  
 
 ---
 
@@ -61,12 +61,12 @@ Metzger calls it bio-energetic flux
 ### CHORUS 2
 *[Louder, more raw. Additional vocal layers in pain]*
 
-**This is breakthrough, this is Hitler's vision**  
-**My body moves in ways I'm not commanding**  
-**Wgah'nagl fhtagnI'm speaking but it's not my voice**  
-**You call this progress, chart our disintegration**  
-**We're not transcending, we're becoming doors**  
-**For something that was never meant to wake**  
+This is breakthrough, this is Hitler's vision  
+My body moves in ways I'm not commanding  
+Wgah'nagl fhtagnI'm speaking but it's not my voice  
+You call this progress, chart our disintegration  
+We're not transcending, we're becoming doors  
+For something that was never meant to wake  
 
 ---
 
@@ -88,9 +88,9 @@ Strapped to this bunk
 While Metzger takes his notes  
 
 *(Erupting to full band)*  
-**We were chosen!**  
-**We were pure!**  
-**We were supposed to be the Übermensch!**  
+We were chosen!  
+We were pure!  
+We were supposed to be the Übermensch! 
 
 *(Guitar solo: dissonant, wailing, Kim Thayil-style Eastern modal bends)*
 
@@ -104,31 +104,17 @@ That don't care about the Reich
 ### FINAL CHORUS
 *[Everything. Maximum intensity, then collapsing]*
 
-**This was breakthrough, this was your design**  
-**Three candidates reduced to raving specimens**  
-**Ph'nglui mglw'nafh Cthulhu R'lyeh wgah'nagl fhtagn**  
-**Write that down, Doctor, in your progress report**  
-**We're not the future, we're the warning**  
-**And It's already inside**  
+This was breakthrough, this was your design  
+Three candidates reduced to raving specimens  
+Ph'nglui mglw'nafh Cthulhu R'lyeh wgah'nagl fhtagn  
+Write that down, Doctor, in your progress report  
+We're not the future, we're the warning  
+And It's already inside 
 
 ---
 
 ### OUTRO
 *[Collapsing. Guitars fade to single clean note. Voice breaking, exhausted]*
-
-*(whispered, defeated)*  
-Green light  
-Tentacles  
-Mathematics I can see but shouldn't  
-
-*(Dr. Metzger's voice, clinical, distant)*  
-*"Excellent progress, gentlemen.*  
-*Vril sensitivity confirmed.*  
-*Proceeding to final phase."*  
-
-*(Final whispered line as guitar note distorts)*  
-We were never the vessels...  
-We were the door...  
 
 *[Feedback. Silence.]*
 
