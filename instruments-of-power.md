@@ -133,12 +133,6 @@ Dark water of the fjord
 I touch the photograph one final time  
 Greta, Elsa—forgive me  
 
-*(spoken, mechanical)*  
-Coordinates: 47°9'S, 126°43'W  
-Dive depth: Beyond convention  
-Beyond survival  
-Beyond return  
-
 *(Final engine sound. Submersion. Silence.)*
 
 ---
