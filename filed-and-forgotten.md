@@ -32,13 +32,13 @@ I dip my pen and write the words that bury truth
 ### CHORUS
 *[Build to layered guitars, still melancholic. Not aggressivebittersweet]*
 
-**Filed and forgotten**  
-**Another ghost beneath the waves**  
-**Filed and forgotten**  
-**The cosmic horror that we'll never name**  
-**Just ink on paper**  
-**Just dust in the archive**  
-**Filed... and forgotten**  
+Filed and forgotten  
+Another ghost beneath the waves  
+Filed and forgotten  
+The cosmic horror that we'll never name  
+Just ink on paper 
+Just dust in the archive  
+Filed... and forgotten  
 
 ---
 
