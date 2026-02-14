@@ -20,7 +20,7 @@
 Strapped to this chair, Reiner, Candidate Two  
 Emergency lights dying, casting jade shadows  
 The psychic pressure shifts, coalesces with purpose  
-No longer currentnow deliberate scrutiny  
+No longer current now deliberate scrutiny  
 
 Ancient malevolence condensing around us  
 Intelligence so vast it profanes the word  
@@ -58,7 +58,7 @@ Phosphorescent eyes ancient beyond time
 Kessler screaming "Sacred vessel! God-Source!"  
 His delusion naming cosmic indifference  
 The sphere gyrates violent then stops utterly  
-That slow dreaming pulse we lived withgone  
+That slow dreaming pulse we lived with gone  
 
 *[Pre-Chorus: More urgent, reality breaking]*
 
@@ -93,7 +93,7 @@ Stirring.
 
 *(Building with massive doom riffs)*  
 My mind unravels  
-Not fracturesflensed  
+Not fractures flensed  
 Raw screaming void  
 Resonant with thoughts spawned beyond stars  
 
@@ -148,7 +148,7 @@ And we are nothing
 
 ## PRODUCTION NOTES:
 
-- **Vocals:** Aaron Turner/Greg Mackintosh stylecontrolled doom delivery building to anguished roars. Apocalyptic resignation transitioning to overwhelming horror
+- **Vocals:** Aaron Turner/Greg Mackintosh style controlled doom delivery building to anguished roars. Apocalyptic resignation transitioning to overwhelming horror
 - **Guitars:** Neurosis/Isis approachdroning, massive, dissonant. Drop A tuning for bone-crushing low end. Layered feedback creating oppressive atmosphere
 - **Bass:** Doom foundationsubsonic, earthquake-heavy. Following guitar in crushing unison. The weight of the ocean and the god combined
 - **Drums:** Funeral doom pacedeliberate, massive, tribal. Building from sparse hits to overwhelming fills then dissolving back to silence
