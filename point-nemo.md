@@ -38,12 +38,12 @@ Listening
 ### CHORUS 1
 *[Explosive but controlled. Medium-high register, yearning dissociation]*
 
-**Point Nemo, where the world ends**  
-**Forty-seven degrees nine minutes South**  
-**One hundred twenty-six, forty-three West**  
-**The coordinates burning in my mind**  
-**Point Nemo, we are here**  
-**The abyss is rising to meet us**  
+Point Nemo, where the world ends 
+Forty-seven degrees nine minutes South  
+One hundred twenty-six, forty-three West  
+The coordinates burning in my mind  
+Point Nemo, we are here 
+The abyss is rising to meet us 
 
 ---
 
@@ -71,12 +71,12 @@ Just this directed stillness
 ### CHORUS 2
 *[Louder, more layers. Desperate urgency]*
 
-**Point Nemo, farthest from all land**  
-**Forty-seven degrees nine minutes South**  
-**One hundred twenty-six, forty-three West**  
-**The numbers carved into my thoughts**  
-**Point Nemo, we have arrived**  
-**Something ancient recognizes us**  
+Point Nemo, farthest from all land  
+Forty-seven degrees nine minutes South 
+One hundred twenty-six, forty-three West 
+The numbers carved into my thoughts 
+Point Nemo, we have arrived 
+Something ancient recognizes us  
 
 ---
 
@@ -110,12 +110,12 @@ Where something waits
 ### FINAL CHORUS
 *[Everything. Maximum intensity, then fading to hypnotic pulse]*
 
-**Point Nemo, coordinates of convergence**  
-**Forty-seven degrees nine minutes South**  
-**One hundred twenty-six, forty-three West**  
-**The mathematics bleeding through the hull**  
-**Point Nemo, the deep place**  
-**Where the abyss opens its eyes**  
+Point Nemo, coordinates of convergence  
+Forty-seven degrees nine minutes South  
+One hundred twenty-six, forty-three West  
+The mathematics bleeding through the hull  
+Point Nemo, the deep place  
+Where the abyss opens its eyes  
 
 ---
 
