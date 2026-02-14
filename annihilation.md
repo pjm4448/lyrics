@@ -156,14 +156,14 @@ At least it ends
 
 ## PRODUCTION NOTES:
 
-- **Vocals:** Aaron Stainthorpe/Nick Holmes dual approach—deep death growls for violence/chorus sections, soaring clean vocals for Bridge remembrance and Final Chorus. Spoken word narration for Epilogue (detached, archival tone)
-- **Guitars:** Paradise Lost "Gothic" era—crushing doom riffs with tremolo picking for chaos sections, melodic lead lines over Bridge. Drop A tuning maintaining heaviest weight from Song 11
-- **Violin:** Catherine Blake (My Dying Bride) style—enters during Bridge memory section, mournful and classical, contrasting mechanical destruction with human beauty
-- **Bass:** Subterranean doom foundation—following guitars in crushing unison during verses/choruses, melodic counterpoint in Bridge
-- **Drums:** Death-doom dynamics—funeral march pace (58 BPM) with occasional blast beats in violent sections. Massive tom hits, cymbal crashes like thunder
-- **Production:** Peaceville Records aesthetic—organic doom weight, room reverb creating drowning sensation. Steve Albini raw capture for destruction, lush layering for Bridge
-- **Dynamics:** Extreme range from violent death metal aggression (Bridge opening) to sparse beauty (Bridge remembrance) to complete silence (Epilogue end)
-- **Silence:** Critical element—3 seconds after first chord crash, 5 seconds absolute void at track end representing complete erasure
+- **Vocals:** Death growls (Holmes/Stainthorpe style) for verses/choruses, clean vocals for Bridge/Final Chorus, spoken word Epilogue
+- **Guitars:** Paradise Lost crushing doom with tremolo chaos, melodic leads over Bridge. Drop A tuning
+- **Violin:** My Dying Bride style—enters Bridge memory section, contrasting destruction with beauty
+- **Bass:** Subterranean foundation following guitars, melodic counterpoint in Bridge
+- **Drums:** Funeral march (58 BPM) with blast beats in violent sections, massive tom hits
+- **Production:** Peaceville Records organic doom—room reverb, raw capture for destruction, lush Bridge layering
+- **Dynamics:** Extreme range—violent aggression to sparse beauty to complete silence
+- **Silence:** 3 seconds after first chord, 5 seconds void at track end = erasure
 
 ## PERFORMANCE NOTES:
 
