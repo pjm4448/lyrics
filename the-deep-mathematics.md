@@ -1,5 +1,6 @@
 ﻿# The Deep Mathematics
-## (Inspired by Project Übersinnlich - Chapter 6)
+## (Inspired by my novella called Project Übersinnlich - Chapter 6)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Grunge / 90s Alternative Rock  
 **Tempo:**  = 92  

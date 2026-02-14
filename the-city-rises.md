@@ -1,5 +1,6 @@
 ﻿# The City Rises
-## (Inspired by Project Übersinnlich - Chapter 10)
+## (Inspired by my novella called Project Übersinnlich - Chapter 10)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Post-Hardcore / Industrial Alternative  
 **Tempo:**  = 70  

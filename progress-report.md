@@ -1,5 +1,6 @@
 ﻿# Progress Report
-## (Inspired by Project Übersinnlich - Chapter 7)
+## (Inspired by my novella called Project Übersinnlich - Chapter 7)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Grunge / Heavy Alternative Rock  
 **Tempo:**  = 78  

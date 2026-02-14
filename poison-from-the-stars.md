@@ -1,5 +1,6 @@
 # Poison from the Stars
-## (Inspired by Project Übersinnlich - Chapter 2)
+## (Inspired by my novella called Project Übersinnlich - Chapter 2)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Doom Metal / Sludge Rock  
 **Tempo:** ♩ = 62  

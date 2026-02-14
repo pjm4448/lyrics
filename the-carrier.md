@@ -1,5 +1,6 @@
 # The Carrier
-## (Inspired by Project Übersinnlich - Chapter 3)
+## (Inspired by my novella called Project Übersinnlich - Chapter 3)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Paranoid Alternative Rock  
 **Tempo:** ♩ = 90  

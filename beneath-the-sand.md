@@ -1,5 +1,6 @@
 # Beneath the Sand
-## (Inspired by Project Übersinnlich - Chapter 1)
+## (Inspired by my novella called Project Übersinnlich - Chapter 1)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Progressive Alternative Rock  
 **Tempo:** ♩ = 74 (slow, heavy groove)  

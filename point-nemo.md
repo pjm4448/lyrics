@@ -1,5 +1,6 @@
 # Point Nemo
-## (Inspired by Project Übersinnlich - Chapter 9)
+## (Inspired by my novella called Project Übersinnlich - Chapter 9)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** 90s Alternative Rock / Post-Grunge  
 **Tempo:** ♩ = 72  

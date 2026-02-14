@@ -1,5 +1,7 @@
 # The Switch
-## (Inspired by Project Übersinnlich - Chapter 8)
+## (Inspired by my novella called Project Übersinnlich - Chapter 8)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
+
 **Style:** 90s Alternative Rock / Post-Grunge
 **Tempo:** ♩ = 88
 **Key:** Drop D tuning (D-A-D-G-B-E), D minor

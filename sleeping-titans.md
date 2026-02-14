@@ -1,5 +1,6 @@
 # Sleeping Titans
-## (Inspired by Project Übersinnlich - Chapter 4)
+## (Inspired by my novella called Project Übersinnlich - Chapter 4)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Gothic Doom Metal  
 **Tempo:** ♩ = 70  

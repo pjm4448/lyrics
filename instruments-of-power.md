@@ -1,5 +1,6 @@
 # Instruments of Power
-## (Inspired by Project Übersinnlich - Chapter 5)
+## (Inspired by my novella called Project Übersinnlich - Chapter 5)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** 90s Alternative Rock  
 **Tempo:** ♩ = 86  

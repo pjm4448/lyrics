@@ -1,5 +1,6 @@
 # Annihilation
-## (Inspired by Project Übersinnlich - Chapter 12)
+## (Inspired by my novella called Project Übersinnlich - Chapter 12)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Death-Doom Metal  
 **Tempo:** ♩ = 58  

@@ -1,5 +1,6 @@
 ﻿# Filed and Forgotten
-## (Inspired by Project Übersinnlich - Chapter 13)
+## (Inspired by my novella called Project Übersinnlich - Chapter 13)
+## https://peregrinewritesweirdfiction.blogspot.com/2026/02/project-ubersinnlich-kesslers-folly.html
 
 **Style:** Alternative Rock / Dream Pop  
 **Tempo:**  = 78  
