@@ -38,12 +38,12 @@ Its dreaming pulse simply stops
 ### CHORUS 1
 *[Crushing. Full doom weight. Massive, droning]*
 
-**The dreamer wakes, the sleeper stirs**  
-**In angles unknown, in depths profane**  
-**The sphere stops dreaming because it wakes**  
-**And I am the conduit**  
-**The unwilling vessel**  
-**For what should never wake**  
+The dreamer wakes, the sleeper stirs 
+In angles unknown, in depths profane  
+The sphere stops dreaming because it wakes  
+And I am the conduit 
+The unwilling vessel 
+For what should never wake  
 
 ---
 
@@ -71,12 +71,12 @@ My scream tears through reality
 ### CHORUS 2
 *[Louder, more layers. Building to overwhelming]*
 
-**The dreamer wakes, the god arises**  
-**Green and squamous, vast beyond measure**  
-**My consciousness flensed from reality's weave**  
-**Obliterated psyche amplifying horror**  
-**The dreamer wakes**  
-**And I am the broadcast**  
+The dreamer wakes, the god arises  
+Green and squamous, vast beyond measure  
+My consciousness flensed from reality's weave  
+Obliterated psyche amplifying horror  
+The dreamer wakes  
+And I am the broadcast  
 
 ---
 
@@ -124,22 +124,17 @@ Being unmade...
 ### FINAL CHORUS
 *[Everything. Maximum crushing doom weight, then slowly dissolving into drone]*
 
-**The dreamer wakes, rises from the deeps**  
-**Tentacles brushing against poisoned sky**  
-**We sought power, found only indifference**  
-**The god dreams and we dissolve**  
-**The dreamer wakes**  
-**And we are nothing**  
+The dreamer wakes, rises from the deeps  
+Tentacles brushing against poisoned sky  
+We sought power, found only indifference  
+The god dreams and we dissolve  
+The dreamer wakes  
+And we are nothing  
 
 ---
 
 ### OUTRO
 *[Dissolving to single sustained drone. Silence. Void]*
-
-*(Vogel's final transmission, distant, breaking apart)*  
-*"Metal warping... inwards...*  
-*It's not the depth...*  
-*It's the angles..."*  
 
 *(Wet, tearing, metallic shriek)*
 
