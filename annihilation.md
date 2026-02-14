@@ -130,8 +130,7 @@ Annihilation merciful
 
 *Then nothing.*  
 
-*No evidence Unterseeboot 4.5.0.1.*  
-*Ever existed at all*  
+*No evidence Unterseeboot at all*  
 
 *The ocean closed over*  
 *Keeping its secrets*  
