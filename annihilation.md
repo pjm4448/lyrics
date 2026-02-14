@@ -20,7 +20,6 @@
 Water rising past my waist, then chest, then throat  
 The cold drives into marrow, numbing flesh but not the mind  
 Pressure bears down from within the hull itself  
-Reality condensing like carbon into diamond  
 
 Emergency lights flicker jade, casting shadows wrong  
 The psychic weight of awakened god erodes all thought  
@@ -42,7 +41,6 @@ The hull unmakes itself, steel flowing like water
 Annihilation, angles wrong and matter wrong  
 We are being erased, not merely destroyed  
 Annihilation absolute  
-No wreckage will remain  
 
 ---
 
@@ -50,8 +48,7 @@ No wreckage will remain
 *[Multiple voices interwoven. Fragmented perspectives of the dying]*
 
 *(Weber at sonar, voice cracking)*  
-"Contact bearing everywhere, Herr Kaleun  
-I can see it all, I can see *everything*..."  
+"Contact bearing everywhere, Herr Kaleun"  
 His fingers trace impossible geometries  
 Green light in his eyes not from the screen  
 
@@ -62,8 +59,7 @@ Then the hull beside him flows inward
 Erasing him utterly, ideology and all  
 
 *(Müller's final transmission from the engine room)*  
-"Engines secured, taking care of my boys  
-Tell my grandchildren Opa did his duty—"  
+"Engines secured, taking care of my boys"  
 The line goes dead with sound like breaking stone  
 
 *[Pre-Chorus: Urgent, reality fragmenting]*
@@ -81,9 +77,7 @@ We called from the deep and something came
 Annihilation, consciousness dissolving 
 Into the singularity of cosmic indifference  
 Annihilation absolute  
-We are dust before the storm 
 
----
 
 ### BRIDGE
 *[Three-part structure: violence → transition → remembrance]*
@@ -100,12 +94,10 @@ Steel becoming LIQUID!
 But in my breast pocket, beneath the freezing water  
 The photograph of Greta and Elsa dissolves  
 Ink bleeding away, paper disintegrating  
-The only thing I wanted to carry into darkness  
 
 Hamburg in August, sunlight on the Alster  
 Elsa on my shoulders, silver bell laughter  
 Her small hands in my hair, the world impossibly bright  
-Before the war, before the madness, before this end  
 
 I could hold the horror, let it consume me  
 Or I could choose what fills my final moment  
@@ -130,18 +122,14 @@ I release my grip on guilt, on life, on everything
 Annihilation, let the photograph dissolve 
 Let the memories scatter like ash on dark water 
 Annihilation merciful  
-At least it ends 
 
----
 
 ### OUTRO - EPILOGUE
 *[Single massive chord. Feedback. Three seconds silence. Then spoken word/distant vocals over drone]*
 
 *Then nothing.*  
 
-*No wreckage recovered*  
-*No survivors found*  
-*No evidence Unterseeboot 4-5-0-1*  
+*No evidence Unterseeboot 4.5.0.1.*  
 *Ever existed at all*  
 
 *The ocean closed over*  
