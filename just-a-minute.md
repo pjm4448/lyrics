@@ -1,30 +1,30 @@
 Peter's Greatest Hits (Just a Minute)
 
 [Verse 1]
+She found my mug on an Internet dating site
 Ninth of November, two thousand nine
-Found her smile on a dating site screen
-Met at The Cock & Bull, Newmarket loud
+Met in person at The Cock & Bull pub, loud
 Had to shout just to say what I mean
 Then she leaned in close to my ear
 Dior Hypnotic Poison in the air
-Warm breath, goosebumps, little hairs on end
-I was gone and we'd barely got there
+Warm breath, goosebumps, ear hairs stood on end
+I was fallin' then and there
 Walked her back to her car that night
 One small kiss, then I said "wait, hold on"
 "Just a minute," gave her one more
-By morning, I was already gone
+And just like that, my heart was won
 
 [Chorus]
-November nine
+Nine-eleven, November nine
 That's our line
 First hello to "I do" in a year's design
 She said yes with a pug on her knee
-Fireworks went off—Diwali
+Fireworks going off outside
 I didn't plan it
 But the stars aligned
 When you know, you know
 You don't waste time
-From a noisy pub to a quiet shrine
+From that noisy start to somethin' fine
 All started on
 November nine
 
@@ -40,19 +40,19 @@ Still the sweetest disaster I've known
 One month later, got down on one knee
 Bella the pug sittin' right on her lap
 Fireworks exploded all 'round the neighborhood
-Indian neighbors lit up the map
+Perfect timing, couldn't plan that
 
 [Chorus]
-November nine
+Nine-eleven, November nine
 That's our line
 First hello to "I do" in a year's design
 She said yes with a pug on her knee
-Fireworks went off—Diwali
+Fireworks going off outside
 I didn't plan it
 But the stars aligned
 When you know, you know
 You don't waste time
-From a noisy pub to a quiet shrine
+From that noisy start to somethin' fine
 All started on
 November nine
 
@@ -61,18 +61,18 @@ She searched for a year to find Butters
 Brought that lost pug home safe and sound
 Held me up through four years of master's
 Nights and weekends, she stuck around
-Suzie and Bella, Oscar and Dion
+Suzie, Oscar, Dion, Bella, Butters too
 Built a whole family, built a whole life
 Assertive and kind, helps every soul she finds
 Luckiest man to call her my wife
 
 [Chorus]
-November nine
+Nine-eleven, November nine
 That's our line
 First hello to "I do" in a year's design
-Fifteen years and we're still on that climb
+Fifteen years married and we're still on that climb
 She said yes with a pug on her knee
-Fireworks went off—Diwali
+Fireworks going off outside
 I didn't plan it
 But the stars aligned
 When you know, you know
@@ -82,7 +82,7 @@ Married my best friend
 On November nine
 
 [Outro]
-Still smell that perfume in the air
+Still remember that perfume in the air
 Still feel those goosebumps everywhere
 Jo and Peter
 We're keepin' time
