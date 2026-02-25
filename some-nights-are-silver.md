@@ -12,7 +12,7 @@ Filled my certainty with doubt
 
 **Chorus:**
 Some nights are silver, some nights are grey
-Some roads are easy, some lose their way
+Some roads are easy, some lead astray
 You take the bitter right along with the sweet
 Some nights you're dancing, some nights you weep
 
@@ -25,12 +25,6 @@ There were moments bright as diamonds
 There were hours dark as coal
 But I learned that both are needed
 To make a person whole
-
-**Chorus**
-Some nights are silver, some nights are grey
-Some roads are easy, some lose their way
-You take the bitter right along with the sweet
-Some nights you're dancing, some nights you weep
 
 **Bridge:**
 And I'm not asking for the answers
@@ -45,12 +39,12 @@ Every wrinkle tells a story
 Of the seeds that I have sown
 Some fell on rock and withered
 Some took root and learned to grow
-That's the way this life unfolds
+That's the harvest life has offered
 The only truth I know
 
 **Final Chorus:**
 Some nights are silver, some nights are grey
-Some roads are easy, some lose their way
+Some roads are easy, some lead astray
 You take the bitter right along with the sweet
 Some nights you're dancing, some nights you weep
 Some nights are silver, some nights are stone

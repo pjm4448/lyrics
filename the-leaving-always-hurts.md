@@ -24,13 +24,13 @@ It tears my world apart
 You have never asked me not to
 You have never made me choose
 But I see it in your eyes now
-All the nights you spend confused
+All the lonely nights you lose
 I was made to chase this music
 I was born to sing these words
 But loving you is just as real
 As any song I have heard
 
-**Chorus**
+**Chorus:**
 How can I walk away again
 When everything I need is here
 How can I say goodbye again
@@ -54,7 +54,7 @@ I am still your man
 So kiss me in the doorway
 Let me hold you one more time
 I carry you inside me
-Down every highway line
+Down every lonesome mile
 This leaving is not easy
 It never was before
 And every time I come back home
@@ -67,5 +67,5 @@ How can I say goodbye again
 Forgive me for these years
 The road keeps calling out my name
 The song keeps pulling at my heart
-Please wait for me a little longer
-Even though we are apart
+Please wait for me a little more
+The leaving always hurts

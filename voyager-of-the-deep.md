@@ -4,7 +4,7 @@
 Where the horizon meets the endless blue
 And morning light breaks silver through the waves
 There rides a spirit born of salt and dream
-Who charts the waters no one else could save
+Who charts the waters no one else would brave
 
 **Chorus:**
 Sail on, sail on, through canyons made of coral
@@ -18,7 +18,7 @@ Cathedral kelp that rises to the sun
 The gentle giants sing their songs of distance
 A thousand journeys woven into one
 
-**Chorus**
+**Chorus:**
 Sail on, sail on, through canyons made of coral
 Where ancient secrets whisper to the brave
 The dolphins dance like laughter on the current

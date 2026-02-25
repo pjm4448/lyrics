@@ -7,7 +7,7 @@ Gentle rain on the window
 Brings my heart release
 Soft gray skies in the morning
 Look so beautiful
-Soft gray skies when I need them
+Soft gray skies above me
 Rest my weary soul
 
 **Chorus:**
@@ -19,14 +19,14 @@ It would fall for only you
 **Verse 2:**
 Warm breeze through the curtains
 Makes me want to stay
-Warm breeze in the evening
+Warm breeze when you're near me
 Carries me away
 Birdsong in the garden
 Sounds so sweet and clear
 Birdsong when I listen
 Takes away my fear
 
-**Chorus**
+**Chorus:**
 If I had a quiet moment
 I would share it all with you
 If I had a single raindrop

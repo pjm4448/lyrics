@@ -9,22 +9,15 @@ A vessel made for dreamers and the depths they longed to know
 **Chorus:**
 Aye, sweet wanderer, the sea is calling
 Silver daughter of the foam
-Carry the ones who love her secrets
+Carry the ones who love the sea's secrets
 Across the blue and bring them home
 Bring them home
 
 **Verse 2:**
-He gave his life to wonder, to the creatures of the deep
+And one who sailed upon her gave his heart unto the deep
 To the whales that sang of ages and the promises they keep
 With cameras in the darkness where no human eyes had been
 He showed the world a universe beneath the emerald green
-
-**Chorus**
-Aye, sweet wanderer, the sea is calling
-Silver daughter of the foam
-Carry the ones who love her secrets
-Across the blue and bring them home
-Bring them home
 
 **Bridge:**
 For the manta rays that fly like angels

@@ -5,8 +5,8 @@ Close your eyes the day is fading
 Stars are lighting up the sky
 Silver clouds are slowly sailing
 As the evening drifts on by
-There's a train that waits in shadows
-At a platform made of light
+There's a carousel that's waiting
+With its horses made of light
 It will take you where you're going
 On a journey through the night
 
@@ -30,7 +30,7 @@ Every sleeper finds a key
 To a world of endless wonder
 Where imagination's free
 
-**Chorus**
+**Chorus:**
 Climb aboard the midnight carousel
 Spinning through the land of sleep
 Where the wishes fly like fireflies
@@ -42,13 +42,13 @@ And it's leaving very soon
 
 **Bridge:**
 Do not be afraid of darkness
-It's a blanket soft and warm
+It's the cloak that keeps you warm
 In the land beyond your pillow
 There is shelter from the storm
 And I'll be here when you wake up
 With the sunrise on the hill
 But for now just let the night take you
-Where only dreamers go until
+Where the dreamers wander still
 
 **Verse 3:**
 There are castles in the cloudbanks

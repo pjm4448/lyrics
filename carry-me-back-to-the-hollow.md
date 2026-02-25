@@ -20,14 +20,14 @@ Carry me home, carry me home
 **Verse 2:**
 I can taste the wild honey
 Smell the pine on the air
-Hear my mother in the kitchen
-Feel her hands in my hair
+Heard my mother in the kitchen
+Felt her hands in my hair
 Radio plays on the front porch
 Fireflies dance in the yard
 Life was simple and gentle
 Before the world grew so hard
 
-**Chorus**
+**Chorus:**
 Carry me back to the hollow
 Down where the dogwoods bloom white
 Back to the place where I started
@@ -37,6 +37,8 @@ Carry me home, carry me home
 **Bridge:**
 I have seen distant oceans
 Walked along city streets
+Chased my share of distant fortunes
+Tasted glory and defeat
 But nothing compares to that valley
 Where the earth and sky meet
 
