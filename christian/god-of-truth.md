@@ -89,7 +89,6 @@ Nothing formed against His name will ever stand!
 From the ransom of His Son to paradise restored,
 Every plan is written by His hand.
 He's the God of truth—fulfiller of every promise,
-Creator, King, and Lamb!
 And His love will never fail!
 
 *(Repeat with ad-libs)*
