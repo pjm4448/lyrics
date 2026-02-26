@@ -14,7 +14,7 @@ Where his soul was meant to be
 
 **Verse 2:**
 His father taught him patience watching elk upon the ridge
-His grandmother told stories of the ones who crossed the ridge
+His grandmother told stories of the ones who crossed the bridge
 He learned to read the seasons and to walk the ancient trails
 To respect the land that raised him through the snow and summer gales
 
