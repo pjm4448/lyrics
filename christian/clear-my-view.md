@@ -1,4 +1,4 @@
-# Clear My View
+# "Clear My View"
 ### The Watchtower - April 2026
 
 ---
