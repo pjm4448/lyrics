@@ -1,5 +1,5 @@
 # "God of Truth"
-### A Christian Pop Rock Song
+### The Watchtower - April 2026
 
 ---
 
