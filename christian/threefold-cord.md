@@ -12,19 +12,15 @@ But something deeper, something real.
 You teach us how to love each day,
 A bond that time cannot steal.
 
----
-
 ### CHORUS
 We are a threefold cord,
 Not quickly torn apart.
-**Jehovah woven through the centre,**
+Jehovah woven through the centre,
 You bind us heart to heart.
 One flesh, one hope, one life we share,
 Through every storm we'll stand.
 We are a threefold cord,
 Bound by Your faithful hand.
-
----
 
 ### VERSE 2
 We carve out time, we lay things down,
@@ -34,10 +30,8 @@ In You we never walk alone.
 
 No distance, no distraction wins,
 We're building something meant to last.
-**Where patience grows and kindness wins,**
+Where patience grows and kindness wins,
 Your love's the anchor, holding fast.
-
----
 
 ### BRIDGE
 When the cracks begin to show,
@@ -50,8 +44,6 @@ Worth the work, worth the wait,
 So we'll keep on trusting, keep on praying,
 Through You we'll find the way.
 
----
-
 ### FINAL CHORUS
 We are a threefold cord,
 Not quickly torn apart.
@@ -61,9 +53,3 @@ One flesh, one hope, one life we share,
 Through every storm we'll stand.
 We are a threefold cord,
 Bound by Your faithful hand.
-
-*(Tag)*
-Bound by Your faithful hand...
-Bound by Your faithful hand.
-
----
