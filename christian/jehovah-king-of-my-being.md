@@ -45,4 +45,4 @@ Jehovah, King of my being
 Supernatural, all-seeing
 Maker of heaven & earth
 All that I'll ever need
-All that I'll ever needthat I'll ever need
+All that I'll ever need
