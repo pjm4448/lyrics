@@ -25,6 +25,13 @@ For the reefs of red and gold
 For the sailors who believed the ocean
 Had a million tales untold
 
+**Chorus:**
+Aye, sweet wanderer, the sea is calling
+Silver daughter of the foam
+Carry the ones who love the sea's secrets
+Across the blue and bring them home
+Bring them home
+
 **Verse 3:**
 Now the tides still tell her story and the currents speak her name
 Every diver, every dreamer keeps the sacred mission's flame
