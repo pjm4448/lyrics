@@ -73,21 +73,6 @@ You know, I always believed one person could make a difference.
 I wanted to be a catalyst for change.
 Well, sunshine... that's your song to sing now.
 
-## Complete Revision Log
-
-| Section | Final Line | Source of Change |
-|---------|-----------|------------------|
-| Verse 1, Line 5 | "And in that breath, the world turned soft and slow" | Revision 1 |
-| Verse 1, Line 7 | "I'd always known somehow I'd have to go" | Revision 1 |
-| Bridge, Line 3 | "You made me more a man than fame could tell—" | Revision 1 |
-| Bridge, Line 8 | "Where Annie's song still echoes through the sky" | Revision 1 |
-| Verse 3, Line 1 | "I sang in Moscow when the Cold War raged" | Revision 1 |
-| Verse 3, Line 2 | "Held China's hand and walked Ethiopia's dust" | Revision 1 |
-| Verse 3, Lines 3-4 | "I always believed that music on a stage / Could build a bridge where armies only rust" | Revision 1 |
-| Verse 3, Line 8 | "Remember all that's still worth fighting for" | Revision 2 |
-| Final Chorus, Line 5 | "The water only held me for a while" | Revision 1 |
-| Outro | Full revision for clarity and warmth | Revision 1 |
-
 ---
 
 ## Biographical Elements Incorporated
