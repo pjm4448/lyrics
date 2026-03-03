@@ -132,5 +132,3 @@ Well, sunshine... that's your song to sing now.
 | Em | C | Am | D |
 
 ---
-
-This completes the song. Let me know if you'd like any further adjustments or if you'd like me to create additional verses, an alternate bridge, or a simplified version for easier performance.
