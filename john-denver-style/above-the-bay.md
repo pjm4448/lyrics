@@ -43,7 +43,7 @@ I'm in the song - I'm never really gone
 [Bridge]
 Zachary, Anna Kate, and Jesse Belle
 I'm sorry that I left before my time
-You made me more a man than fame could tell—
+You made me more a man than fame could tell
 That sunshine on your shoulders is still mine
 The world is still worth saving, still worth grace
 The hungry still need hands to lift them high
