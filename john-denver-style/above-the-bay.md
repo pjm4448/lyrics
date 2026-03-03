@@ -20,7 +20,7 @@ I'm in the country roads that lead you home
 I'm in the seeds we planted, you and I
 In every tree that's grown from what we've sown
 So don't you weep for me beneath the sky
-I'm in the song—I'm never really gone
+I'm in the song - I'm never really gone
 
 [Verse 2]
 My grandmother, she gave a boy a dream
@@ -38,7 +38,7 @@ I'm in the country roads that lead you home
 I'm in the seeds we planted, you and I
 In every tree that's grown from what we've sown
 So don't you weep for me beneath the sky
-I'm in the song—I'm never really gone
+I'm in the song - I'm never really gone
 
 [Bridge]
 Zachary, Anna Kate, and Jesse Belle
@@ -66,7 +66,7 @@ I'm in the country roads that lead you home
 I'm woven through the wild and open sky
 In every living thing that's ever grown
 The water only held me for a while
-I'm in the song—I'm never really gone
+I'm in the song - I'm never really gone
 
 [Outro (Spoken, gently over soft fingerpicking)]
 You know, I always believed one person could make a difference.
