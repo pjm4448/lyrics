@@ -1,3 +1,9 @@
+# "Above the Bay"
+*A Song in the Style of John Denver*
+*(Final Version)*
+
+---
+
 [Verse 1]
 The sun was setting gold on Monterey
 My hands reached back, the engine sputtered low
@@ -62,7 +68,67 @@ In every living thing that's ever grown
 The water only held me for a while
 I'm in the song - I'm never really gone
 
-[Outro]
+[Outro (Spoken, gently over soft fingerpicking)]
 You know, I always believed one person could make a difference.
 I wanted to be a catalyst for change.
 Well, sunshine... that's your song to sing now.
+
+---
+
+## Biographical Elements Incorporated
+
+| Song Element | Documentary Source |
+|--------------|-------------------|
+| "Three hundred feet above the silver bay" | NTSB finding: altitude 350-500 feet at descent |
+| "My hands reached back" | Fuel valve located behind pilot's left shoulder |
+| "1910 Gibson" | Guitar gifted by grandmother at age 11 |
+| "Father's love was hard to glean" | Father described as "stern and emotionally distant" |
+| "Rocky mountain high" / "Country roads" | Signature songs referenced |
+| "Seeds we planted" / "sixteen million trees" | Plant-It 2020 reforestation legacy |
+| "Zachary, Anna Kate, and Jesse Belle" | Denver's three children |
+| "Made me more a man" | Denver stated fatherhood was "the epitome of being a man" |
+| "Sunshine on your shoulders" | Signature song referenced |
+| "The hungry still need hands" | The Hunger Project co-founder; UNICEF work |
+| "Aspen keeps a sanctuary space" | John Denver Sanctuary, 4.5-acre memorial park |
+| "Annie's song" | Written for first wife; lyrics carved at Sanctuary |
+| "Moscow when the Cold War raged" | First American artist to perform in USSR after cultural exchange resumed (1985) |
+| "China's hand" | First Western artist to tour mainland China (1992) |
+| "Ethiopia's dust" | Traveled to Ethiopia to document drought/starvation |
+| "Windstar spirit" | Windstar Foundation co-founded 1976 |
+| "Catalyst for change" | Denver's stated personal mission |
+
+---
+
+## Performance Recommendations
+
+**Key:** G major or D major
+**Tempo:** 72-80 BPM (gentle, reflective pace)
+**Time Signature:** 4/4
+
+**Instrumentation:**
+- Fingerpicked acoustic guitar (steel string)
+- Optional: harmonica intro/outro
+- Optional: soft cello or violin on bridge
+
+**Vocal Approach:**
+- Clear, unaffected tone
+- Slight nasality characteristic of Denver's voice
+- Restrained vibrato
+- Intimate, conversational delivery on verses
+- Fuller projection on choruses
+
+**Suggested Chord Progression:**
+
+*Verse:*
+| G | C | G | D |
+| Em | C | G | D | G |
+
+*Chorus:*
+| C | G | Am | D |
+| C | G | D | G |
+
+*Bridge:*
+| Em | C | G | D |
+| Em | C | Am | D |
+
+---

@@ -1,4 +1,4 @@
-# "You Are My Horizon"
+# "You Come to Me Like Sunrise"
 
 **Verse 1:**
 You come to me like sunrise
