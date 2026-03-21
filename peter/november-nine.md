@@ -33,7 +33,6 @@ Second date at Sky City, found a quiet booth
 After shoutin', we could finally hear
 Shared a private memory after a couple of beers
 Didn’t expect her warmth would quiet all my fears
-
 Later that week at my flat, saying goodbye
 Stalling for time, neither wanting to go
 Leaned in for a kiss, nearly clashed our teeth
