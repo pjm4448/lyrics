@@ -21,7 +21,8 @@ With hope in His Kingdom, I walk in His way.
 
 [Bridge] 
 I cast my cares on Him, He knows my every need,  
-Surrounded by my brothers, I find the love I need.
+Surrounded by my brothers and sisters,
+I find the love I need.
 
 [Chorus]
 Leaning on Jehovah, I find strength to stand,  
