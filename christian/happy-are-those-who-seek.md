@@ -45,7 +45,7 @@ My spiritual need - Jehovah’s love and care.
 
 Production Notes / Musical Direction:
 - Tempo: Moderate, uplifting country ballad (80–90 BPM)
-- Instrumentation: Acoustic guitar, gentle percussion, pedal steel, upright bass, light piano
-- Vocal style: Warm, sincere, and earnest; harmonies on chorus and outro
+- Instrumentation: Twelve-string guitar, gentle percussion, pedal steel, upright bass, light piano
+- Vocal style: Key of G or A major. Male lead vocal; delivery should be warm, sincere, and earnest; harmonies on chorus and outro
 - Arrangement: Verses with simple guitar, chorus with fuller instrumentation, bridge with dynamic build, soft outro
 - Mood: Encouraging, peaceful, and hopeful, reflecting the joy and fulfillment of satisfying one’s spiritual need
